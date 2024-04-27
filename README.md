@@ -6,5 +6,5 @@ The most impressive websites in the world use 3D graphics and animations to brin
  
 
 ## Want to land your dream programming job in 3 - 6 months?
-⭐ The proton academy Masterclass Experience - https://sheikhzain.tech
+⭐ The Proton Academy Masterclass Experience - https://sheikhzain.tech
 Become a Software Engineer. Guaranteed.
